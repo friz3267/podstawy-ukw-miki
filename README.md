@@ -3,3 +3,9 @@
 
 
 gitaa
+
+
+
+
+
+robilem w domu
